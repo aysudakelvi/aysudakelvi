@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aysudakelvi
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning Jetr
